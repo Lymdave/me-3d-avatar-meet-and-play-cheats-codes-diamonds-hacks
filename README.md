@@ -1,2 +1,5 @@
-# me-3d-avatar-meet-and-play-cheats-codes-diamonds-hacks
-Me 3d avatar meet and play cheat codes unlimited diamonds Hacks tutorial
+# Me 3d avatar meet and play cheat codes unlimited diamonds Hacks tutorial
+
+Me 3d avatar meet and play cheat codes unlimited diamonds Hacks tutorial - Similar to VIP bonuses, the gold brick booster will turn your "standard" brick into a gold brick. Therefore, we suggest that players also make full use of this function. As we said, anything that can promote production is important and should be treated in this way. Of course, the super builder has incredible speed and power, which enables him to easily carry huge weight. What's better than hiring a superman to help you with heavy things? However, the duration of the BRICs function is limited. To be exact, you will have 30 seconds to maximize the potential of this offer. Of course, you can let the workers do the work at a random pace. Or, you can click on the screen to make them more motivated. Needless to say, as long as you click the screen and keep the staff busy, your funds may soar in 30 seconds.
+
+<a href="https://growhunt.top/me-3d-avatar-meet-and-play/">go here</a>
